@@ -1,5 +1,5 @@
 
-# Abdullahi | Data Analyst
+# Abdullahi Abdulganiyu | Data Analyst
 
 Welcome to my portfolio!
 
